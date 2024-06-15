@@ -39,5 +39,4 @@ Feel free to explore my repositories to see some of my projects and contribution
 ## 📫 How to Reach Me:
 
 - **Email**: buiducanh.dev@gmail.com
-- 
 Thanks for visiting my profile, and have a great day! 😊
